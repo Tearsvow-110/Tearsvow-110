@@ -1,4 +1,14 @@
-## Hi there 👋
+## 目前主玩超自然，淡圈火影，王者
+
+（很多圈子均三分钟热度，时间长的两三年，短的一两个月）
+
+ cp较杂食 无雷点 零孝子
+
+<img width="1772" height="1667" alt="无标题86_20260405225422" src="https://github.com/user-attachments/assets/533b0aee-1527-4420-ade1-911f79bb9e01" />
+
+<img width="1300" height="1734" alt="无标题87_20260405225316" src="https://github.com/user-attachments/assets/3bf80638-e0e4-4e70-bdce-eaefefad886b" />
+
+<img width="1350" height="1970" alt="无标题88_20260405225730" src="https://github.com/user-attachments/assets/4025a741-b784-4a91-8615-24c2b2124201" />
 
 <!--
 **Tearsvow-110/Tearsvow-110** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
