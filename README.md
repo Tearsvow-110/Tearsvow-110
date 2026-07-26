@@ -1,14 +1,17 @@
-## 目前主玩超自然，淡圈火影，王者
+##备注ag
 
 （很多圈子均三分钟热度，时间长的两三年，短的一两个月）
 
- cp较杂食 无雷点 零孝子
+ cp较杂食 无雷点 就是不会社交而已
 
-<img width="1772" height="1667" alt="无标题86_20260405225422" src="https://github.com/user-attachments/assets/533b0aee-1527-4420-ade1-911f79bb9e01" />
 
-<img width="1300" height="1734" alt="无标题87_20260405225316" src="https://github.com/user-attachments/assets/3bf80638-e0e4-4e70-bdce-eaefefad886b" />
+这是我的作品
 
-<img width="1350" height="1970" alt="无标题88_20260405225730" src="https://github.com/user-attachments/assets/4025a741-b784-4a91-8615-24c2b2124201" />
+<img width="1600" height="1795" alt="1784713100180" src="https://github.com/user-attachments/assets/e7541af0-768f-4cb0-af76-b149fca089f5" />
+
+<img width="1536" height="2048" alt="无标题97 (1)" src="https://github.com/user-attachments/assets/1af9a03d-678f-4d4e-8a0a-477e0056e429" />
+
+<img width="1239" height="1564" alt="无标题2" src="https://github.com/user-attachments/assets/00b7a8a5-1c00-49d8-b562-747641242224" />
 
 <!--
 **Tearsvow-110/Tearsvow-110** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
